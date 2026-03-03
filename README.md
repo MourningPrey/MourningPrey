@@ -5,7 +5,7 @@ hello if you're here from PonyTown (surprised if not; also this has a lot of yap
 ☆》 ***Please call me Batty/Bugs/Cota/Rem/Ribs/Critter. Adult (21+). Aegoromantic. cis/het (incase that matters for whatever reason). Mentally unwell (/gen)***
 (i lov collecting names hehehehe)
 
-⚠️ A major note ⚠️
+# ⚠️ A major note ⚠️
 <img width="736" height="736" alt="Untitled198_20260219055648" src="https://github.com/user-attachments/assets/8573d41a-0241-467c-9eda-286a5c43e4a6" />
 ***I genuinely don't say that to be mean, but talking to people makes me so nervous. And I struggle with connecting and it's super tiring. But I try not to be mean if you int before reading this.***
 
@@ -31,7 +31,7 @@ hello if you're here from PonyTown (surprised if not; also this has a lot of yap
 
 Some DNI stuffs
 
-**Fandom(s) DNI:**
+# **Fandom(s) DNI:**
 
 🚫》 Undertale/Deltarune
 
@@ -46,7 +46,7 @@ Some DNI stuffs
 🚫》 MCR/Ghost (the band)
 
 
-**Ships DNI:**
+# **Ships DNI:**
 (Note, ***NO*** I will not be elaborating because legitimately ***no*** matter what I tell you for my personal reasons it'll be blatantly ignored. So, please, do ***NOT*** harass me(Again.))
 
 🚫》 Spamtenna
@@ -66,7 +66,7 @@ Honestly, mostly any ship that contains my favorite characters, comfs, or f/os i
 My major comfs and/or f/os
 <img width="2676" height="2043" alt="Untitled196_20260219054509" src="https://github.com/user-attachments/assets/37d77f97-43d2-4287-a74d-e5be018f4818" />
 
-(⚠️lotta yap) Extra comfs/favs and/or f/o(s):
+# (⚠️lotta yap) Extra comfs/favs and/or f/o(s):
 - The Knocker
 - The Hollow Knight
 - Shadow Milk Cookie
@@ -106,7 +106,7 @@ My major comfs and/or f/os
 
 ♡
 
-**Other Media/Things I Enjoy (played/seen/[⭕️] - haven't played/seen but enjoy some characters of said franchise[❌️]):**
+# **Other Media/Things I Enjoy (played/seen/[⭕️] - haven't played/seen but enjoy some characters of said franchise[❌️]):**
 
 ♡》 Writing oc x canon fics/drawing
 
@@ -172,7 +172,7 @@ My major comfs and/or f/os
 
 ❌️》 Subnautica
 
-**Mah favorite Pokémon!!:**
+# **Mah favorite Pokémon!!:**
 
 - THE IMPIDIMP LINE ; Grimmsnarl and Morgrem is so peak,,,,
 - The Charcadet line ; Ceruledge my baby,,
@@ -210,7 +210,7 @@ My major comfs and/or f/os
 
 🐛🩻
 
-
+this is prone to updating. probably constantly
 <!--
 **MourningPrey/MourningPrey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
