@@ -7,9 +7,11 @@ hello if you're here from PonyTown (surprised if not; also this has a lot of yap
 
 # ⚠️ A major note ⚠️
 <img width="736" height="736" alt="Untitled198_20260219055648" src="https://github.com/user-attachments/assets/8573d41a-0241-467c-9eda-286a5c43e4a6" />
+
 ***I genuinely don't say that to be mean, but talking to people makes me so nervous. And I struggle with connecting and it's super tiring. But I try not to be mean if you int before reading this.***
 
-***MINORS (UNDER 15) DNI)***
+
+***MINORS (UNDER 15) DNI***
 
 ☆》 ***Cuddle + hiding behind me is fine by me, but I can't guarantee I'll chatter. Although if I get odd vibes I may panic and hide you I'm sorry.***
 
