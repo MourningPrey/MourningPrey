@@ -9,6 +9,8 @@ hello if you're here from PonyTown (surprised if not; also this has a lot of yap
 <img width="736" height="736" alt="Untitled198_20260219055648" src="https://github.com/user-attachments/assets/8573d41a-0241-467c-9eda-286a5c43e4a6" />
 ***I genuinely don't say that to be mean, but talking to people makes me so nervous. And I struggle with connecting and it's super tiring. But I try not to be mean if you int before reading this.***
 
+***MINORS (UNDER 15) DNI)***
+
 ☆》 ***Cuddle + hiding behind me is fine by me, but I can't guarantee I'll chatter. Although if I get odd vibes I may panic and hide you I'm sorry.***
 
 ☆》 ***If we do talk, I do use tone tags and please int with VERY EXTREME caution and care.***
@@ -47,7 +49,9 @@ Some DNI stuffs
 
 
 # **Ships DNI:**
-(Note, ***NO*** I will not be elaborating because legitimately ***no*** matter what I tell you for my personal reasons it'll be blatantly ignored. So, please, do ***NOT*** harass me(Again.))
+(Note, ***NO*** I will not be elaborating because legitimately ***no*** matter what I tell you for my personal reasons it'll be blatantly ignored. I hate and don't tolerate these ships /gen /nm)
+
+🚫》 Midas x Kado Thorne
 
 🚫》 Spamtenna
 
@@ -61,7 +65,7 @@ Some DNI stuffs
 
 Honestly, mostly any ship that contains my favorite characters, comfs, or f/os is something I don't care to engage in such media at all/will block such media.
 
-(Extra note: ***NO*** this is ***NOT*** an attack on your personal character or whatever you like. I do not care for these ships, and it'd be very cash money of you if we agree to disagree and just ***not*** talk.
+(Extra note: ***NO*** this is ***NOT*** an attack on your personal character or whatever you like. It'd be very cash money of you if we agree to disagree and just ***not*** talk.
 
 My major comfs and/or f/os
 <img width="2676" height="2043" alt="Untitled196_20260219054509" src="https://github.com/user-attachments/assets/37d77f97-43d2-4287-a74d-e5be018f4818" />
