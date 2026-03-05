@@ -37,6 +37,8 @@ Some DNI stuffs
 
 # **Fandom(s) DNI:**
 
+🚫》 The Freak Circus
+
 🚫》 Undertale/Deltarune
 
 🚫》 Hazbin Hotel/Helluva Boss
@@ -67,7 +69,7 @@ Some DNI stuffs
 
 Honestly, mostly any ship that contains my favorite characters, comfs, or f/os is something I don't care to engage in such media at all/will block such media.
 
-(Extra note: ***NO*** this is ***NOT*** an attack on your personal character or whatever you like. It'd be very cash money of you if we agree to disagree and just ***not*** talk.
+(Extra note: ***NO*** this is ***NOT*** an attack on your personal character or whatever you like. It'd be very cash money of you if we agree to disagree and just ***not*** talk.)
 
 My major comfs and/or f/os
 <img width="2676" height="2043" alt="Untitled196_20260219054509" src="https://github.com/user-attachments/assets/37d77f97-43d2-4287-a74d-e5be018f4818" />
@@ -96,6 +98,7 @@ My major comfs and/or f/os
 - Anakin Skywalker/Vader
 - SCP 049
 - Miguel O'Hara
+- Pierrot
 - Kado Thorne
 - Stellan (FN)
 - The Good Doctor (FN)
