@@ -13,6 +13,8 @@ hello if you're here from PonyTown (surprised if not; also this has a lot of yap
 
 ***MINORS (UNDER 15) DNI***
 
+***E-RP DNI***
+
 ☆》 ***Cuddle + hiding behind me is fine by me, but I can't guarantee I'll chatter. Although if I get odd vibes I may panic and hide you I'm sorry.***
 
 ☆》 ***If we do talk, I do use tone tags and please int with VERY EXTREME caution and care.***
