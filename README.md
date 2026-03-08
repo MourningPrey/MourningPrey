@@ -15,7 +15,7 @@ hello if you're here from PonyTown (surprised if not; also this has a lot of yap
 
 ***E-RP DNI***
 
-***Fun note: even if you may think it's redundant, there is such thing as having Fandom DNI while existing in the same space of said fandom! If you're offended by it, sorry! Block me. Sometimes it's fun to simply watch from afar and not be interacted with, thanks!***
+***Fun note: even if you may think it's redundant, there is such thing as having "Fandom DNI" while existing in the same space of said fandom! If you're offended by it, sorry! Block me. Sometimes it's fun to simply watch from afar and not be interacted with, thanks!***
 
 ☆》 ***Cuddle + hiding behind me is fine by me, but I can't guarantee I'll chatter. Although if I get odd vibes I may panic and hide you I'm sorry.***
 
