@@ -76,7 +76,8 @@ Honestly, mostly any ship that contains my favorite characters, comfs, or f/os i
 (Extra note: ***NO*** this is ***NOT*** an attack on your personal character or whatever you like. It'd be very cash money of you if we agree to disagree and just ***not*** talk.)
 
 My major comfs and/or f/os
-<img width="2676" height="2043" alt="Untitled196_20260219054509" src="https://github.com/user-attachments/assets/37d77f97-43d2-4287-a74d-e5be018f4818" />
+![Screenshot_20260309_015505_Gallery](https://github.com/user-attachments/assets/56dd8cb2-d8d1-4c7a-a625-73ac0c85e5c9)
+
 
 # (⚠️lotta yap) Extra comfs/favs and/or f/o(s):
 - The Knocker
