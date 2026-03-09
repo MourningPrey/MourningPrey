@@ -105,8 +105,6 @@ My major comfs and/or f/os
 - SCP 049
 - Miguel O'Hara
 - Pierrot
-- Kado Thorne
-- Stellan (FN)
 - The Good Doctor (FN)
 - **actually, there's a lot of FN f/os/comfs/favs so js check the tag**
 - Pyramid Head
