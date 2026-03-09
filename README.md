@@ -80,6 +80,7 @@ My major comfs and/or f/os
 
 
 # (⚠️lotta yap) Extra comfs/favs and/or f/o(s):
+- Frank (Subway S.)
 - The Knocker
 - The Hollow Knight
 - Shadow Milk Cookie
@@ -133,6 +134,8 @@ My major comfs and/or f/os
 ♡》 Puppets!
 
 ♡》 70s-2010s childhood whimsy/shows
+
+⭕️》 Super Emo Alpaca (2014 Mobile Game)
 
 ⭕️》 A Quiet Place: Day One (!!!!!)
 
@@ -224,18 +227,3 @@ My major comfs and/or f/os
 
 🐛🩻
 
-this is prone to updating. probably constantly
-<!--
-**MourningPrey/MourningPrey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
