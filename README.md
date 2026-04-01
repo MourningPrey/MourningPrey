@@ -11,7 +11,7 @@ hello if you're here from PonyTown (surprised if not; also this has a lot of yap
 ***I genuinely don't say that to be mean, but talking to people makes me so nervous. And I struggle with connecting and it's super tiring. But I try not to be mean if you int before reading this.***
 
 
-***MINORS (UNDER 15) DNI***
+***MINORS DNI***
 
 ***E-RP DNI***
 
@@ -80,6 +80,7 @@ My major comfs and/or f/os
 
 
 # (⚠️lotta yap) Extra comfs/favs and/or f/o(s):
+- Alucard Tepes
 - Frank (Subway S.)
 - The Knocker
 - The Hollow Knight
