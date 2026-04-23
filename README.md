@@ -80,6 +80,8 @@ My major comfs and/or f/os
 
 
 # (⚠️lotta yap) Extra comfs/favs and/or f/o(s):
+- Xytrax
+- Michael (Hoard)
 - Jacob Alden
 - Alucard Tepes
 - Frank (Subway S.)
