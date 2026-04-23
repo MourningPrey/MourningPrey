@@ -2,7 +2,7 @@
 
 hello if you're here from PonyTown (surprised if not; also this has a lot of yap. i just like talking abt my favorite characters)
 
-☆》 ***Please call me Batty/Bugs/Cota/Rem/Ribs/Critter. Adult (21+). Aegoromantic. cis/het (incase that matters for whatever reason). Mentally unwell (/gen)***
+☆》 ***Please call me Batty/Bugs/Cota/Rem/Ribs/Critter/Vanilla. Adult (21+). Aegoromantic. cis/het (incase that matters for whatever reason). Mentally unwell (/gen)***
 (i lov collecting names hehehehe)
 
 # ⚠️ A major note ⚠️
