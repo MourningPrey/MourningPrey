@@ -121,7 +121,7 @@ My major comfs and/or f/os
 
 ♡
 
-# **Other Media/Things I Enjoy (played/seen/[⭕️] - haven't played/seen but enjoy some characters of said franchise[❌️]):**
+# **Other Media/Things I Enjoy (played/seen[⭕️] - haven't played/seen but enjoy some characters of said franchise[❌️]):**
 
 ♡》 Writing oc x canon fics/drawing
 
