@@ -127,6 +127,8 @@ My major comfs and/or f/os
 
 ♡》 Writing oc x canon fics/drawing
 
+♡》 And One (i %100 rec their music)
+
 ♡》 Metallica/Dio/Ozzy Osborne/Black Sabbath/Buck-Tick/TØP
 
 ♡》 Jack Stauber
