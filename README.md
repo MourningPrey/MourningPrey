@@ -80,6 +80,7 @@ My major comfs and/or f/os
 
 
 # (⚠️lotta yap) Extra comfs/favs and/or f/o(s):
+- Damon (Broken Colors)
 - Xytrax
 - Michael (Hoard)
 - Jacob Alden
@@ -91,6 +92,7 @@ My major comfs and/or f/os
 - Grimm
 - Trobbio
 - Guardian (Stray)
+- Mr. Crawling
 - Sephiroth
 - Cloud
 - Avery (PKMN)
@@ -129,9 +131,7 @@ My major comfs and/or f/os
 
 ♡》 And One (i %100 rec their music)
 
-♡》 Metallica/Dio/Ozzy Osborne/Black Sabbath/Buck-Tick/TØP
-
-♡》 Jack Stauber
+♡》 Metal/Rock/Industrial/Industrial Metal/EBM
 
 ♡》 The backrooms/liminal spaces
 
